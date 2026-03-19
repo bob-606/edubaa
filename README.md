@@ -1,6 +1,6 @@
 # edubaa
 
-### **([Github](https://github.com/bob-606/) ; [📲](tel:+37258802547) ; [📧](mailto:kood@jjl.ch) ; [TG](https://t.me/musubito))**
+### **([📲](tel:+37258802547) ; [📧](mailto:jay.lim@mail.ee))**
 NB!  The clickable action items contain legitimate links (i.e., no tracker nor malware). 
 
 ---
